@@ -1,4 +1,4 @@
-
+Enhance ClickUp for macOS with ClickUp for macOS advanced Tool: AI assistant & goal tracking, the #1 tool. Includes AI assistant and goal tracking for a smoother experience.
 
 
 
